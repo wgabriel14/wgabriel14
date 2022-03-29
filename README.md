@@ -12,7 +12,7 @@
 
 
 
-### 📫 You can find me
+### 📫 Ping me
 - [Twitter](https://twitter.com/wgabrey) 🐦
 - [Instagram](https://instagram.com/wgabriel14) 📸
 - [LinkedIn](https://www.linkedin.com/in/williams-reyes-0584b91a8) 💼
